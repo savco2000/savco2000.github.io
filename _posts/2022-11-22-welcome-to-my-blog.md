@@ -1,8 +1,6 @@
 ---
 published: true
 ---
-## Welcome to my Blog
-
 The first person to suggest that I write a blog was my first supervisor at my first ever job as a student assistant at the IT department of The State University of New York (SUNY) at Buffalo back around the year 2004. 
 
 He had taken me for lunch one day and we were discussing some current affairs. Apparently, he was intrigued by my insights and all of a sudden he looked straight into my eyes with a sly smile and asked me "Why don't you start a blog?" 
