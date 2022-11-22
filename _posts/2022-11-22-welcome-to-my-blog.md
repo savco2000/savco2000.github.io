@@ -7,7 +7,7 @@ He was a youthful stocky man, originally from South Korea who had spent his chil
 
 He had taken me for lunch one day and we were discussing some current affairs, most probably the then ongoing [Iraq War](https://en.wikipedia.org/wiki/Iraq_War).  Apparently, he was intrigued by my insights and all of a sudden he looked at me with a sly smile and a twinkle in his eyes and asked me "Why don't you start a blog?" 
 
-I thought he was pulling my leg as I thought that my analysis was just “common sense”. Plus if Jay-Z doesn't write down his lyrics, why should I write down my ideas? After all, just like Jay-Z I could always summon them on demand.
+I thought he was pulling my leg as I thought that my analysis was just “common sense”. Plus if Jay-Z doesn't write down his lyrics, why should I write down my ideas? After all, just like Jay-Z, I could always summon them on demand.
 
 Fast forward almost two decades later and I can no longer summon my ideas as readily as Jay-Z can summon his lyrics. I have also heard this chorus of "You should write a blog/do a podcast!" from many friends, workmates, acquaintances and family including my mother that I have finally caved in and agreed to write a blog. Wish me luck!
 
