@@ -11,6 +11,6 @@ Fast forward almost two decades later and I can no longer summon my ideas as rea
 
 So I have finally caved in and agreed to write a blog. Wish me luck!
 
-This blog will consist of topics that I find interesting including business, science and technology, governance, human psychology, human organizations and societies.
+This blog will consist of topics that I find interesting including music, business, science and technology, governance, human psychology, human organizations and societies.
 
 I have deliberately chosen not to allow for comments in the blog posts because I don't have the time, energy and patience to perform content moderation. However, please feel free to email me if you need to get in touch.
